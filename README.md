@@ -19,3 +19,5 @@ Como ingeniero industrial, me siento cómoda:
 ```Me apasiona todo lo que tenga que ver con optimización, productividad y hacer que las cosas funcionen mejor y más fácil```.
 
 En pocas palabras: soy curiosa, organizada, social y siempre estoy en búsqueda de nuevas formas de mejorar y experiencias.
+https://github.com/Mayte-10/Reporte-2.0/blob/main/MAY%20MAY.jpg?raw=true
+
